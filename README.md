@@ -2,7 +2,7 @@
   
 ## İMAGES
   
-![alt text]([url=https://www.hizliresim.com/dkvum98][img]https://i.hizliresim.com/dkvum98.PNG[/img][/url])
+![alt text](https://i.resmim.net/i/girs.png)
 
 ![alt text](https://www.hizliresim.com/jfoi9bd)
 
